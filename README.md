@@ -5,4 +5,4 @@ Thanks for using or reading or helping out!
 
 ...also, I am an idiot sometimes and don't know what I'm doing.
 
-- Sincere The Minotaur
+- Sincere The Minotaur + Andrew
